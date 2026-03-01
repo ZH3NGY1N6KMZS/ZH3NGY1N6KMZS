@@ -1,5 +1,6 @@
-## Hi there 👋
 
+![kimdokja](https://i.pinimg.com/1200x/ec/57/75/ec5775607b9c1fffa86066b63be6cadc.jpg)
+![gif](https://i.pinimg.com/originals/bd/ca/64/bdca645bfb01db27793f1c18ec143276.gif) muhehehe
 <!--
 **ZH3NGY1N6KMZS/ZH3NGY1N6KMZS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
