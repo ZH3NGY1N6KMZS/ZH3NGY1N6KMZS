@@ -1,5 +1,5 @@
 
-![kimdokja](https://i.pinimg.com/1200x/ec/57/75/ec5775607b9c1fffa86066b63be6cadc.jpg)
+![kimdokja](https://cdn.donmai.us/sample/ad/51/__ziche_fuzhao_and_li_yuting_touqi_guaitan_drawn_by_xieyuni__sample-ad511af6ddc6c2b7aea484535a7b77dc.jpg)
 <!--
 **ZH3NGY1N6KMZS/ZH3NGY1N6KMZS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
